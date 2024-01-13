@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @avamaxfans
+- I am very happy that you can see this website, this website is for consultation about new releases of singer songwriter Ava Max (Amanda Ava Koci) all news from my fan account new releases collaborations and much more....
+I include that this website reserves the copyright to any of my editions and above all out of respect love and admiration for the singer songwriter Ava Max.
